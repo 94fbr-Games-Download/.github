@@ -1,7 +1,7 @@
 ## 94fbr Games Download For PC
 94fbr games is an incomparable action and strategy game. Download now and enter the real battlefield with enhanced features and realistic graphics. Greene’s Greene, in charge of the creative direction of the game. Turns the expansion into a standalone title. In the 94fbr game, more than 100 players parachute onto an island and search for weapons. And other supplies to kill other players when they decide not to commit suicide.
-## ✔✔✨👍 [94fbr Games Download](https://94fbr.org/dl/)
-## ✔✔✨👍 [94fbr Games Free Download for PC](https://94fbr.org/dl/)
+## ✔✔✨👍 [94fbr Games Download](https://allcracksoft.org/dl/)
+## ✔✔✨👍 [94fbr Games Free Download for PC](https://allcracksoft.org/dl/)
 
 94fbr game
 
